@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Asadbek18
-- 👀 I’m interested in watching TV
+- 👀 I’m interested in watching Fantastic Movies
 - 🌱 I’m currently learning .Net and .Net frameworks
 - 💞️ I’m looking to collaborate on kind community
 - 📫 How to reach me Asadbekashirov18@gmail.com 
